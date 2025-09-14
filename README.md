@@ -2,5 +2,5 @@
 
 
 
-- 📫 How to reach me: epaz9@montgomerycollege.edu
+- 📫 How to reach me: epaz@terpmail.umd.edu
 
